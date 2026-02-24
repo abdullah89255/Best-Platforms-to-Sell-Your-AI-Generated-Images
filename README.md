@@ -110,4 +110,3 @@ Before selling:
 ---
 
 
-If you want, I can help you **write better prompts**, **choose the best niche**, or even **create sample images** to start selling!
